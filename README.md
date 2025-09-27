@@ -2,7 +2,4 @@
 
 
 
-Me cago en Jafet
-
-
 
